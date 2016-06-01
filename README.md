@@ -7,7 +7,11 @@ finish your assignment, one at a time.
 That is the ONLY way to learn something for real.
 
 ## Hometown in Wikipedia #1
-**Please find your hometown in wikipedia and share your comments here.Thanks.**
+**Today's reading assignment:
+Find your hometown （where you grew up) and where you live now entries on 
+http://wikipedia.org and share the link with us
+What is your biggest surprise and discovery about your hometown after reading about it on wikipedia? Share with us.
+This is a reading and writing class, not a searching and sharing links class.**
 
 I'm a native of Beijing.Beijing is not the most populous city in the world, and is ranked third after Shanghai and Karachi.   
 Beijing is not the biggest city in China. Shanghai is the biggest.  
