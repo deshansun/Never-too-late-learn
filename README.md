@@ -7,8 +7,7 @@ finish your assignment, one at a time.
 That is the ONLY way to learn something for real.
 
 ## Hometown in Wikipedia #1
-Please find your hometown in wikipedia and share your comments here.
-Thanks.
+**Please find your hometown in wikipedia and share your comments here.Thanks.**
 
 I'm a native of Beijing.
 Beijing is not the most populous city in the world, and is ranked third after Shanghai and Karachi. 
@@ -25,10 +24,9 @@ There were **9** Chinese Airports in the top 50 in 2015,including [Hong Kong Int
 However, there was none in the top 30 except [Hong Kong International Airport](https://en.wikipedia.org/wiki/Hong_Kong_International_Airport) before 2003. 
 
 ## English language
-
-Since this group is mainly for you to learn English in an English context, i.e., no flash cards, no Chinese translation, Wikipedia is our best friend. We will choose a topic of discussion evey week.
+**Since this group is mainly for you to learn English in an English context, i.e., no flash cards, no Chinese translation, Wikipedia is our best friend. We will choose a topic of discussion evey week.
 The topic last week was hometown, this week is the English language.
-Let's see what we can learn.
+Let's see what we can learn.**
 
 English is now a global lingua franca. It is the third most common native language in the world, after Mandarin and Spanish.
 English speakers from around the world are able to communicate with one another effectively.
